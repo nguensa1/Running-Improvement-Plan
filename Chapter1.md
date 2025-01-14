@@ -1,0 +1,4 @@
+Why do I need a training plan?
+Having a training plan can help runners stay motivated, prevent injuries, and achieve their goals more efficiently. It provides a sense of structure and accountability to an individual’s running routine. Without a plan, runners may be more likely to overtrain or skip workouts, both of which can impede progress and increase the risk of injury.
+
+Additionally, following a well-designed training plan ensures that runners gradually build up their endurance and fitness level, rather than pushing themselves too hard and risking burnout. This is especially important for beginners who may be more prone to injuries due to lack of experience.
