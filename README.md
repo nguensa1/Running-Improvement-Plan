@@ -1,2 +1,2 @@
-# Running-Improvement-Plan
-why do you need a running plan?
+# CoachtheRun
+Training plans for runners!
